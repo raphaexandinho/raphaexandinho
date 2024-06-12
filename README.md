@@ -11,3 +11,7 @@ me y cabelo e´cacehado
 
 
 Eu gosto de Jujutsu Kaisen
+
+
+![image](https://github.com/raphaexandinho/raphaexandinho/assets/169937819/057012f2-aa00-408e-a079-e03e0494a05c)
+
