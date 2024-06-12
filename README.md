@@ -1,0 +1,13 @@
+ola meu nome e raphael
+Eu tenho 16 Anos e eu gosto de escutar musica desenhar jogar video games Com os amigos e eu Gosto tambem de Dormir e Comer]]ks
+Eu enh o abaelo grande e eu ando de Skamte as vezes eu
+
+
+Me u nariz é grande
+
+
+
+me y cabelo e´cacehado
+
+
+Eu gosto de Jujutsu Kaisen
